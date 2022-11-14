@@ -1,4 +1,4 @@
-﻿**Términos y Condiciones**
+**Términos y Condiciones**
 
 Actualizado el 2022/11/14
 
